@@ -1,1 +1,1 @@
-cs student @ UNAM uwu 
+cs student @ UNAM
